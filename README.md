@@ -7,10 +7,10 @@
 ![image](https://raw.githubusercontent.com/kennthDfong/runner/master/screenshots/IMG_0016.jpg)
 
 
+
 ![image](https://raw.githubusercontent.com/kennthDfong/runner/master/screenshots/IMG_0017.jpg)
 
 ![image](https://raw.githubusercontent.com/kennthDfong/runner/master/screenshots/IMG_0018.jpg)
 
-![image](https://raw.githubusercontent.com/kennthDfong/runner/master/screenshots/IMG_0020.jpg)
 
 ![image](https://raw.githubusercontent.com/kennthDfong/runner/master/screenshots/IMG_0021.jpg)
